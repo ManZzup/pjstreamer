@@ -98,7 +98,7 @@ Feel free to contact me on
 
 @email : manujith.nc@gmail.com
 
-@twitter : @_manzzup_
+@twitter : @\_manzzup\_
 
 @blog  : http://manzzup.blogspot.com
 
